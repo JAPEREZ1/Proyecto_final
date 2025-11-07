@@ -1,1 +1,1 @@
-Andres Ochoa - Profe
+Josué Salinas - estudiante
