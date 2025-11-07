@@ -1,1 +1,2 @@
-Andres Ochoa - Profe
+Andres ochoa - Profe
+Sebastian Sarmiento- presi
