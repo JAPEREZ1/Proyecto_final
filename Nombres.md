@@ -1,1 +1,0 @@
-Andres Ochoa - Profe
